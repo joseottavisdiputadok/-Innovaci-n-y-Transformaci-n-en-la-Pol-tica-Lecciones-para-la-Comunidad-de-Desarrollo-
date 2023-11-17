@@ -1,1 +1,5 @@
 # -Innovaci-n-y-Transformaci-n-en-la-Pol-tica-Lecciones-para-la-Comunidad-de-Desarrollo-
+10/09/2011 - Crónica - Política - Pág. 3
+Contexto y Relevancia de la Capacitación Política en la Era Digital 
+En la era de la información y la digitalización, la reciente jornada de formación política organizada por el instituto de capacitación del Partido Justicialista, Gestar, en Ituzaingó, brinda lecciones valiosas que trascienden el ámbito político y se hacen eco en la gestión de proyectos y equipos de desarrollo. El evento, titulado "Tres banderas, el modelo social, político y económico que transforma el país", ofreció una plataforma para debatir sobre los cambios estructurales necesarios en la Argentina. La participación del intendente local, Alberto Descalzo, y de figuras prominentes como Cristina Fernández de Kirchner y Daniel Scioli, subraya la importancia de la dirección estratégica y la visión en cualquier proyecto, sea político o tecnológico. 
+(https://joseottavis.com/jose-ottavis/gestar-jornada-de-formacion-en-ituzaingo/)
